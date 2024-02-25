@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning front end 
 - 🌱 I’m currently learning web development and python
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me use my mail vermahimani956@gmail.com
+- 📫 Use my mail to contact me- vermahimani956@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: love trying new things
 
